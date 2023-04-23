@@ -1,19 +1,21 @@
 ok now me personally im fine with the way furries work.
 
-its just a bunch of people doing an animal cosplay which is fine.
+it's just a bunch of people doing an animal cosplay which is fine.
 
-pretty cool until you see the **real** side of the community.
+pretty cool until you see the **known** side of the community.
 
-its now an entire thing for pedophiles to target un-suspecting people wanting to be furries.
+it's now an entire thing for pedophiles to target un-suspecting people wanting to be furries.
 
-and then like *almost every* pedophile was like `"yoo let's gooooo people to harass"` which is why the furry community is garbage in my opinion.
+and then like *almost every* pedophile was like "yoo lets gooooo people to harass" which is why the furry community is genuinely garbage.
 
-basically, their community is now full of weirdos that are either future pedos or currently pedos.
+their community is now full of weirdos that are either future pedos or currently pedos.
 
-my friend who is now a furry always wonders why when we game on garry's mod, i say "oh shit a furry, hunt him down!" like dude, im forced to interact with the extremely weird ones on a basis.
+my friend (who is now a furry) always gets mad at me when we game on garry's mod, only because i say "oh shit a furry, hunt him down!" since he has a furry player model. like dude, im forced to interact with the extremely weird ones on a daily basis.
 
-it doesnt matter if he's a rare normal one, it feels like a damn goofy ptsd gets triggered.
+it doesn't matter if he's a rare normal one, it feels like a damn jumpscare.
 
-damn, i ranted. oh well no one is going to see this. (unless they want to)
+damn, i ranted. oh well no one is going to see this. (unless they want to).
 
-![ding dong ditch](https://cdn.discordapp.com/attachments/876150702093795378/1099484646292606986/lTA0MKyd7UvL4axZ.mp4)
+have a good day/night whomever you are.
+
+![ding dong ditch](https://media.discordapp.net/attachments/876150702093795378/1099484646292606986/lTA0MKyd7UvL4axZ.mp4)
