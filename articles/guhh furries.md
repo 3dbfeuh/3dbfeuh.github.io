@@ -14,8 +14,6 @@ my friend (who is now a furry) always gets mad at me when we game on garry's mod
 
 it doesn't matter if he's a rare normal one, it feels like a damn jumpscare.
 
-damn, i ranted. oh well no one is going to see this. (unless they want to).
-
-have a good day/night whomever you are.
+all im saying is lots of furries these days are seriously messed up in the head. ![emoji](../media/emojis/joepc.gif)
 
 ![f3x world is doomed](https://media.discordapp.net/attachments/876150702093795378/1099323504622571540/20230215_153344.png)
