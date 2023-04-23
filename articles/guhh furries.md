@@ -18,4 +18,4 @@ damn, i ranted. oh well no one is going to see this. (unless they want to).
 
 have a good day/night whomever you are.
 
-![ding dong ditch](https://media.discordapp.net/attachments/876150702093795378/1099484646292606986/lTA0MKyd7UvL4axZ.mp4)
+![f3x world is doomed](https://media.discordapp.net/attachments/876150702093795378/1099323504622571540/20230215_153344.png)
