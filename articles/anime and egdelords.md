@@ -10,4 +10,4 @@ i haven't met a single person who is unironically racist though so that's good. 
 
 i just find 9/11 and 1939-1945 memes (you know what i mean). also i just saw a concentration camp parody video today like wtf edgelords? god we live in a society where lots of edgelords actually think they are cool.
 
-![spongebob edgy eye burn](https://tenor.com/view/edgy-gif-22043354)
+![spongebob edgy eye burn](https://c.tenor.com/zjUcNl7BsNUAAAAd/edgy.gif)
