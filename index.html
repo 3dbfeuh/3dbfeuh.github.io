@@ -18,7 +18,6 @@
             background-color: #09090f;
             font-size: 1.3em;
         }
-
         .content {
             max-width: 1000px;
             width: calc(100% - 20px);
@@ -26,29 +25,34 @@
             margin-left: auto;
             margin-right: auto;
         }
-
         a {
             color: white;
         }
-
+        @media (prefers-color-scheme: dark) {
+            body {color:#fff;background:#000}
+            a:link {color:#cdf}
+            a:hover, a:visited:hover {color:#def}
+            a:visited {color:#dcf}
+	    }
+        @media print {
+            body {
+                max-width:none
+            }
+        }
         #article-list {
             display: flex;
             flex-direction: column;
         }
-
         #article-list>a {
             margin-left: 0.5em;
         }
-
         #pinned-article-list {
             display: flex;
             flex-direction: column;
         }
-
         #pinned-article-list>a {
             margin-left: 0.5em;
         }
-
         #article-content * {
             max-width: 100%;
         }
